@@ -1,0 +1,2 @@
+# Vitrine-
+Política de privacidade 
